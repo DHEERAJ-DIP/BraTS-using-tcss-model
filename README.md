@@ -5,7 +5,7 @@
 - **Dheeraj Reddy** (22BCE1257)  
 - **Vara Anjan** (22BCE1750)  
 - **Jaya Madhav** (22BCE1754)  
-- Under the guidance of **Dr. Geeta S**
+- Under the guidance of **Dr. Geetha S**
 
 ---
 
